@@ -1,2 +1,4 @@
 # Contacto_Miembros.Team18_CCdCMx.2020
-hah
+##Miembros Equipo 18##
+Fredie Aaron Santos Colli: fredie03@outlook.com
+
