@@ -4,5 +4,13 @@ Miembros Equipo 18.
 
 
 
-Fredie Aaron Santos Colli: fredie03@outlook.com
+Fredie Santos: fredie03@outlook.com
+
+
+Naomi Sánchez: naopam01@gmail.com
+
+
+Ximena Lais: laisxlah@gmail.com
+
+
 
