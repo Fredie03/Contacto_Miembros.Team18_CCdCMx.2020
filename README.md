@@ -13,4 +13,7 @@ Naomi Sánchez: naopam01@gmail.com
 Ximena Lais: laisxlah@gmail.com
 
 
+Valeria González: gonzalezcep.valeria@gmail.com
+
+
 
