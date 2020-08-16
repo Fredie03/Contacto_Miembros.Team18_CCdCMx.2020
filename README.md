@@ -7,7 +7,7 @@ Miembros Equipo 19.
 Fredie Santos: fredie03@outlook.com
 
 
-Naomi Sánchez: naopam01@gmail.com
+Naomi Sánchez: naomipamela01@gmail.com
 
 
 Ximena Lais: laisxlah@gmail.com
