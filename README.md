@@ -1,5 +1,5 @@
-# Contacto_Miembros.Team18_CCdCMx.2020
-Miembros Equipo 18.
+# Contacto Miembros del Team 19-Challenge Clubes de Ciencia México 2020
+Miembros Equipo 19.
 
 
 
